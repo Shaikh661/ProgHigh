@@ -1,1 +1,3 @@
-# ProgHigh
+# We Seek Perfection
+
+lets goooo
